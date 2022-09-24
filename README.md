@@ -9,3 +9,6 @@ https://g.dev/Shraddha-Shaha
 
 Project Report Link :
 https://drive.google.com/file/d/1k9Q8c0veasgqoAVHZck3I8dE7uUpGSPA/view?usp=sharing
+
+Smart Internz Link :
+https://smartinternz.com/student-profile/feed/U0IyMDIyMDIzNzgyMQ==
